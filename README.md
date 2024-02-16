@@ -90,6 +90,6 @@ The project aims to empower potential buyers and sellers in the Singapore housin
 
 **Links :**
 
-**YouTube Link  :** https://youtu.be/YdUZYpPzXUg
-**LinkedIn Link :** https://www.linkedin.com/in/ms-mgr-agri/
+* **YouTube Link  :** https://youtu.be/YdUZYpPzXUg
+* **LinkedIn Link :** https://www.linkedin.com/in/ms-mgr-agri/
 
